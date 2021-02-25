@@ -11,3 +11,5 @@
 ##Goku For Hokage
 
 #dkbsdkjaskjnkd.
+
+lets extract the Jinchuriki 
